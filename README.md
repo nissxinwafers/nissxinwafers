@@ -8,7 +8,7 @@ I'm still learning and growing, and I'd love to connect, collaborate, and learn 
 
 ### Fun facts
 
-- I'm a vocalist and a worship leader.
+- I'm a vocalist and leads worship.
 - I enjoy graphic design just as much as coding.
 - A fan of the ocean and pretty much anything in nature.
 - Gets excited about learning something new, then mildly frustrated when I haven't mastered it in the first five minutes lol. 
